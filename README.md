@@ -1,1 +1,1 @@
-# Enduring-Capital-Reports
+Hi, I’m Shivam Shekhawat — an investing enthusiast with a deep interest in uncovering long-term value in public markets. Enduring Capital Reports is my initiative to contribute to the fascinating world of investment research by publishing high-quality, fundamentally driven equity analysis.
